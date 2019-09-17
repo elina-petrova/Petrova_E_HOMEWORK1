@@ -1,1 +1,1 @@
-# Petrova_E_Homework1
+Hi! This file were created by Jihee and Elina.
